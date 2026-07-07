@@ -1,4 +1,4 @@
-# 
+# Novo Desktop offers business banking tailored for startups, with no fees, fast approvals, and integrated tools.
 
 
 
